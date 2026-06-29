@@ -1,6 +1,6 @@
 Discount Business Class Tickets: Experience Luxury Travel at the Best Price
 
-Flying in business class is no longer reserved only for corporate travelers or celebrities. Today, travelers can easily find [[discount business class tickets](https://thebusinessclassfly.com/)] that offer premium comfort, priority services, and world-class amenities at surprisingly affordable prices.
+Flying in business class is no longer reserved only for corporate travelers or celebrities. Today, travelers can easily find [[discount business class tickets](https://thebusinessclassfly.com/)] that offer premium comfort, priority services, and world-class amenities at surprisingly affordable prices. 
 
 Whether you're planning a family vacation, honeymoon, business trip, or international journey, booking discounted business class fares allows you to enjoy luxury without paying the full retail price.
 
